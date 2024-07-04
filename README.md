@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shivanikashiv
-- 👀 I’m interested in various things but now i am just developing my interest in coding
+- 👀 I’m interested in various things but now i am just developing my interest in coding. I hope i'd be able to do it well.
 - 📫 How to reach me: /shivanikashiv on FB, IG, X etc
 - 😄 Pronouns: she/her
 - ⚡ more about me: i admire beauty in everything, kinda aesthete! i love to see things/people more in the way they are than just their usual appearances.
